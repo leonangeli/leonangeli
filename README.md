@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="right" height="150" src="href="https://giphy.com/gifs/spongebob-season-4-spongebob-squarepants-l1KtYG8BndKBmWrM4" />
 
 ###
 
